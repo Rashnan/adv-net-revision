@@ -1,1 +1,1 @@
-https://rashnan.github.io/adv-net-revision
+https://rashnan.github.io/revision-notes
